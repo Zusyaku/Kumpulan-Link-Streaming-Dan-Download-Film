@@ -1,9 +1,14 @@
-# Kumpulan-Link-Straming-Dan-Download-Film
-Link Film Bajakan
+# Kumpulan-Link-Streaming-Dan-Download-Film
+
+
+Link Film Bajakan Dan Saya Tidak Bertanggung Jawab Jika Terjadi Sesuatu
+Jika Ada Iklan  Dan Pop Up Gunakan Adblock
 
 
 # Kalo Mau Tambahin Linknya Yang Lain Bisa Email Saya Atau Komen Di Issues
 
+
+https://pahe.ph
 https://213.166.69.166/
 https://103.194.171.232/
 http://193.164.131.42/
@@ -31,7 +36,6 @@ http://148.163.72.77/
 https://103.194.171.205/
 http://51.79.190.210/
 http://167.99.71.200/
-https://pahe.ph
 https://adikfilm.quest/
 https://103.194.171.18/
 https://layarfilm99.casa/
