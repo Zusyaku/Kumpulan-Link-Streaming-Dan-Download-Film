@@ -8,7 +8,9 @@ Jika Ada Iklan  Dan Pop Up Gunakan Adblock
 # Kalo Mau Tambahin Linknya Yang Lain Bisa Email Saya Atau Komen Di Issues
 
 
-https://pahe.ph
+https://pahe.li
+https://filmapik.shop/
+https://5.182.209.205/
 https://213.166.69.166/
 https://103.194.171.232/
 http://193.164.131.42/
